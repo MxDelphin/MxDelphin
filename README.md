@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming!
 - 🌱 I’m currently learning how to cook /j
 - 💞️ I’m looking to collaborate on with King_BOOBer /j
-- 📫 How to reach me you dont ;)
+- 📫 How to reach me: you dont ;)
 - 😄 Pronouns: They/Them!
 - ⚡ Fun fact: Im a dinosaur
 
